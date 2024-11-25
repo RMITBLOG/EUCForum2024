@@ -1,5 +1,7 @@
 # **EUC Forum Winter Edition 2024 - Resources Repository**
 
+![Front slide](https://github.com/user-attachments/assets/e7fa33bb-83ac-4f07-a404-e0e25178f888)
+
 ---
 
 ## **Contents**
